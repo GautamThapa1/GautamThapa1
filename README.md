@@ -34,4 +34,4 @@ I'd rather understand a system well enough to build it myself than depend on a f
 
 ### 📫 Reach me
 
-[LinkedIn](#) &nbsp;|&nbsp; gautamthapagg@gmail.com
+[LinkedIn](https://www.linkedin.com/in/gautam-thapa-7a7934374/) &nbsp;|&nbsp; gautamthapagg@gmail.com
